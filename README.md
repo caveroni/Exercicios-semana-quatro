@@ -1,0 +1,1 @@
+Amei o avanço da semana 4, me sinto muito mais confiante em relação ao javascript, diria até que tô quase dev já rsrs. Em relação a aula: Não possui dúvidas, se eu possuí, voltei ao conteúdo para rever novamente. Aula como sempre incrível!!! 
